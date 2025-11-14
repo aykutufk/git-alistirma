@@ -1,1 +1,1 @@
-"Harika Proje A‡klamas de§iŸtirildi" 
+Harika Proje AÃ§Ä±klamasÄ± - Acil DÃ¼zeltme Notu
