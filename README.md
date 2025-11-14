@@ -1,1 +1,1 @@
-"Harika Proje Aáçklamasç" 
+"Acil DÅzeltme Notu" 
