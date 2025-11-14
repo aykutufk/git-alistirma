@@ -1,1 +1,1 @@
-"Harika Proje Aáçklamasç" 
+"Harika Proje Aáçklamasç deßiütirildi" 
