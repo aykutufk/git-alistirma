@@ -1,1 +1,1 @@
-"Harika Proje A‡klamas" 
+Harika Proje AÃ§Ä±klamasÄ± - Acil DÃ¼zeltme Notu
